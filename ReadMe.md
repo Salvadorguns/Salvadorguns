@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently Student<br>👯 I’m looking to collaborate <br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+
 
 
 ## 🌐 Socials:
